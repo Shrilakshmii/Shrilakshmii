@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shrilakshmii
-- 🌱 I’m currently learning Sahyadri College of Engineering and Management
+- 🌱 I’m currently learning in Sahyadri College of Engineering and Management
 
 
 <!---
